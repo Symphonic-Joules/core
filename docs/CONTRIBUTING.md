@@ -86,4 +86,4 @@ Keep it respectful and accessible. Push ideas hard, not people.
 ## 📬 Contact
 
 > Got a big idea? DM me:  
-> [linkedin.com/in/austin-serb](https://www.linkedin.com/in/austin-serb/)
+> [linkedin.com/in/austin-serb](https://www.linkedin.com/in/jaclynvicary/)
